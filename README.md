@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Amin Fallahi
+- 👀 I’m student
+- 🌱 I’m currently learning programms language
+- 👁‍🗨 do you want to see my codes?
